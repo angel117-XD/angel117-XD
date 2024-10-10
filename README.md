@@ -4,7 +4,7 @@
 - actualmente tengo 16 años
 - voy reprobando hasta el receso XD
 - chat gpt carrea el semestre
-- la prepano es como en las peliculas gringas
+- la prepa no es como en las peliculas gringas
 - XBOX es mejor que PlayStation
 - me gustaria viajar a japon para ver los dos lados de su cultura, la samurai y la otaku
 - mis videojuegos favoritos son: War Thunder, Arena Break Out y ARK en ese orden
