@@ -15,8 +15,7 @@
 - Como me gustaria que fuera mi casa: Tener casa(opcional)
 - Mis fortalezas: a veces me dicen que soy un genio y aveces que estoy bien pendej0 XD
 - Mis debilidades: Soy flojo, a veces se me olvidan las cosas
-- 
-- 
+
 
 <!---
 angel117-XD/angel117-XD is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
