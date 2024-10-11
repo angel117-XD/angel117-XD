@@ -4,7 +4,6 @@
 - actualmente tengo 16 años
 - voy reprobando hasta el receso XD
 - chat gpt carrea el semestre
-- la prepa no es como en las peliculas gringas
 - XBOX es mejor que PlayStation
 - me gustaria viajar a japon para ver los dos lados de su cultura, la samurai y la otaku
 - mis videojuegos favoritos son: War Thunder, Arena Break Out y ARK en ese orden
@@ -12,6 +11,7 @@
 - mis temas favoritos de la historia son las cruzadas, el imperio Romano y las guerras mundiales
 - soy muy fan de la ciencia ficcion en general, mis franquicias favoritas son HALO y Star Wars
 - Exitos: ni uno XD
+- Decepciones: la prepa no es como en las peliculas gringas
 - Como me gustaria que fuera mi casa: Tener casa(opcional)
 - Mis fortalezas: a veces me dicen que soy un genio y aveces que estoy bien pendej0 XD
 - Mis debilidades: Soy flojo, a veces se me olvidan las cosas
